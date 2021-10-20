@@ -1,1 +1,1 @@
-<h3> 💎 Personal Homepage 💎 <h3>
+<h3>  <h3>
